@@ -15,4 +15,4 @@ I'm a **Software Engineer** with a **B.Sc. in Computer Engineering** from **Tech
 
 ## 📫 Let's Connect!
 - 💼 [LinkedIn](https://www.linkedin.com/in/wiaam-fares-aa8682214/)
-- 📧 Email: wiaam.fares7@email.com
+- 📧 Email: wiaam.fares7@gmail.com
